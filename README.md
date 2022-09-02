@@ -1,1 +1,0 @@
-# thinkingprocess.github.io
